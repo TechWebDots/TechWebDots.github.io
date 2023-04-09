@@ -13,8 +13,8 @@ Host Free Website Step by step
 
 Now, Visit your website <GitHub_Account_Username>.github.io 🥳🎉🎊🎇🍾
 
-Visit our channel for More such videos
+Visit our channel for more such content
 🔗 https://www.youtube.com/@TechWebDots
 
-Visit our official website for support.
+Visit our official website for any support.
 🌐 https://www.techwebdots.in/
